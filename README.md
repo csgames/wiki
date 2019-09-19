@@ -1,0 +1,3 @@
+# CSGames Wiki
+
+Coming soon!
